@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+list of my favourites things:
+🐈‍⬛
+🧁
+🎮
+my favourite things
+footbll
+boxing
