@@ -2,7 +2,8 @@ list of my favourites things:
 *👪
   *🐈‍⬛
 Hobbies
-  *🎮
-my favourite things:
-1.basketball
-2.volley
+ *🐈‍⬛
+ Favourite things:
+ 1. football
+ 2. cricket
+ 
